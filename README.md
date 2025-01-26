@@ -2,4 +2,4 @@
 - 👀 I’m interested in Data Analytics , Engineering Design🛠, Crypto💰 and Sports⚽.
 - 🌱 I’m currently performing data visualizations using Tableau and Power BI.
 - 💪🛠 I’m looking to collaborate on Data Visualization projects.
-- 📫 You can reach me on +234(802)-7401-590 and dafeeyoufe@gmail.com
+- 📫 You can reach me on +234(802) 7401 590 and dafeeyoufe@gmail.com
